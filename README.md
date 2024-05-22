@@ -1,0 +1,1 @@
+# Strength-Patterns-in-Female-Powerlifting-Athletes
